@@ -15,7 +15,7 @@
 <br>
 <div align="center">
 
-Matrix or Eve (she/they/them/any)<br>
+Eve (she/they/them/any)<br>
 ˋ꒰ aqua , 01'  |  INTP . 💭 ꒱ IDN/ENG.<br>
 <br>
 “ W͟i͟t͟h͟o͟u͟t͟ s͟h͟o͟w͟i͟n͟g͟ o͟f͟f͟, y͟o͟u͟ a͟l͟r͟e͟a͟d͟y͟ k͟n͟o͟w͟ w͟h͟o͟ i͟'m͟ m͟o͟r͟e͟ i͟n͟t͟o͟. ”
@@ -47,7 +47,7 @@ j͟u͟s͟t͟i͟f͟i͟e͟s͟ a͟l͟l͟ B͟u͟r͟n͟i͟n͟g͟ S͟p͟i͟c͟e͟ s͟h
 fomo.<br>
 homohobic.<br>
 problematic.<br>
-tr*mp supporters.<br>
+tr*mp, pr*b*w* supporters.<br>
 rasict.<br>
 spammer.<br>
 t͟o͟x͟i͟c͟/s͟e͟l͟f͟c͟e͟s͟t͟ shippers (especially shadowvanilla, burningcacao, doublefedora, fruitcake, darklily, etc.)<br>
