@@ -47,7 +47,7 @@ j͟u͟s͟t͟i͟f͟i͟e͟s͟ a͟l͟l͟ B͟u͟r͟n͟i͟n͟g͟ S͟p͟i͟c͟e͟ s͟h
 fomo.<br>
 homohobic.<br>
 problematic.<br>
-tr*mp, pr*b*w* supporters.<br>
+tr*mp , pr4b0wo supporters.<br>
 rasict.<br>
 spammer.<br>
 t͟o͟x͟i͟c͟/s͟e͟l͟f͟c͟e͟s͟t͟ shippers (especially shadowvanilla, burningcacao, doublefedora, fruitcake, darklily, etc.)<br>
